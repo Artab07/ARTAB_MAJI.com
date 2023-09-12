@@ -1,0 +1,1 @@
+# ARTAB_MAJI.com
